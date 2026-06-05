@@ -1,4 +1,4 @@
-# Hi, I'm Shruti Narthu 👋
+# Hi, I'm Shruti Narthu 
 
 🎓 Final Year Computer Science Student
 
